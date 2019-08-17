@@ -1,2 +1,2 @@
-# Extra Life 2019 Prep
+# Extra Life 2019 Graphics
 Things needed to be go to make success.
